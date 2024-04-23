@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @maland22
-- 👀 I’m interested in doing nothing
-- 🌱 I’m currently learning to much things at once
+- 👀 I’m interested in  nothing
+- 🌱 I’m currently learning irgendein pfusch
 - 📫 How to reach me ... gor net
 - 😄 Pronouns: he/she/it das s geht mit
 
