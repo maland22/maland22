@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @maland22
 - 👀 I’m interested in  nothing
 - 🌱 I’m currently learning irgendein pfusch
-- 📫 How to reach me ... gor net
+- 📫 How to reach me ... OF
 - 😄 Pronouns: he/she/it das s geht mit
 
 <!---
